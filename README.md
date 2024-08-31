@@ -21,3 +21,5 @@ btw, if youve seen my scraps, i usually dont
 type a lot, but since this is the last submission 
 ig i just went all out! 
 hope you like the art anyway hehe
+OH AND, i couldnt decide on which color 
+suits the background best so i tried to play around w them, by editing the layer's properties after i drew the background, if you reqd this, please do tell me in the dms or thread which one was your fav, itll also help me learn color schemes ; P, thx
